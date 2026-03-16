@@ -1,3 +1,6 @@
 # Studieretningsdag
 :P
 Miro Board: https://miro.com/welcomeonboard/bEx5bUlqTS9YSlNLUU1yaGYvWDhhbzZHZ3JPb1N1a2tESmZsK3dpYXpxSUE2OXVLaUIzZTYyR1IxUjFXOHFObkt1clNHRDlsaG1JY1ZOS2VuRWRaLzJNNkwrbFVnQVMzZ3dQaml6bTJpOHR3bXJ3Yys5NzVvZjY3YVZNNHFheWNhWWluRVAxeXRuUUgwWDl3Mk1qRGVRPT0hdjE=?share_link_id=43882828677
+
+Trello: 
+https://trello.com/invite/b/69b80ee6808f9d27d1857039/ATTIa8985667d495ebbc15a8e60aed22c124F978887C/studieretningsdag
